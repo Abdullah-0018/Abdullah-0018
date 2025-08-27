@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Abdullah Umer
-**A passionate Software Developer || DevOps Engineer**
+**A passionate Software Developer || Shopify Developer 💻**
 
 Email Me 👉 ✉️ **abdullahumarbhai389@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
